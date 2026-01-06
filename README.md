@@ -42,9 +42,7 @@ New updates focus on gameplay balance, progression depth, and polish.
 
 For support or questions:
 
-**Email:** yourname@email.com  
-(Replace with your real support email)
-
+**Email:** abdulmusa9812@gmail.com  
 ---
 
 ## © Copyright
